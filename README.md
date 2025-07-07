@@ -19,4 +19,4 @@
 
 我们致力于为用户提供无广告、高清、不卡顿的日本AV视频，始终保持更新，提升用户体验，并通过精准的SEO优化，确保站点能够在搜索引擎中获得高排名，满足不同用户的需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong13 ）</span>
